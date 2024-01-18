@@ -1,1 +1,7 @@
-lk;j;lz
+My name is Jacob Gordon. I am a senior at Bates College majoring in math and economics and minoring in philosphy. I am taking this class for Bates credit this semester because I am interested in working in data science, and I think this course will teach me some important skills for that career path.
+
+I was born and raised in New York City, and have lived there my whole life. I have a close family with twin younger brothers who are 20 months younger than me, and we are lucky to get along well. We frequently play competitive board and card games (ex: hearts, settlers of catan, ticket to ride). I am the oldest of my generation (brothers, cousins, even family friends), and I feel purpose helping those close to me.
+
+Personally, I have always loved math, statistics, puzzles, and basically anything else numerical or logical. I have enjoyed playing fantasy football with friends/family since I was five or six years old. I started playing chess a bit over five years ago, and I play over an hour a day every day for fun. I play pretty casually, but I am considering taking chess more seriously by joining a club and playing in tournaments wherever I end up living next year (little chess opportunity around Lewiston and surrounding towns). I have gotten into exercise during college, and I'm running a marathon with two friends in May (first time for us all). None of us were serious runners before, and personally it has been very cool to watch my capabilites grow over time. 
+
+I am taking this class remote because I have a Bates class right after our class, so I don't have time to make it to Portland. I am hoping to to come in person one day and meet you all if I can make the timing work.
